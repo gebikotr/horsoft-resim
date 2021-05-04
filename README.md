@@ -1,2 +1,2 @@
-# horsoft
+# horsoftt
 HORSOFT SİTESİNİN RESİMLERİ
